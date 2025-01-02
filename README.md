@@ -1,5 +1,5 @@
 # Tamilrockers-Proxy
-![Uploading image.png…]()
+![image](https://github.com/user-attachments/assets/11375565-10ad-4eef-85ec-6ad869b0e28e)
 
 Navigating Tamilrockers Safely: Access, Download, and Legal Alternatives.
 
